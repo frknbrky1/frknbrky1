@@ -1,0 +1,3 @@
+- 👋 Merhaba ben Berkay
+- 👀 https://www.linkedin.com/in/furkan-berkay/
+- 📫 fb0990@hotmail.com
